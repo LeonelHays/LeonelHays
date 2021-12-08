@@ -5,3 +5,4 @@
 - 📫 How to reach me: starryhornet863@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like rock, blues, jazz and metal music
+- ⚡ Extra Fun fact: I play guitar as a hobbie 
